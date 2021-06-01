@@ -1,1 +1,1 @@
-# due-june-01
+# Homework assignment due June 01.
